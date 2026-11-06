@@ -1,0 +1,1 @@
+# Tecnicas-Computacionais-refletindo-sobre-Inteligencia-Artificial-na-escola
